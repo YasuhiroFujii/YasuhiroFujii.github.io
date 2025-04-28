@@ -1,0 +1,1 @@
+# YasuhiroFujii.github.io
